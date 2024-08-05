@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ProjectVelocity1
+- 👀 I’m interested in osu/videogames
+- 🌱 I’m currently learning Python
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i can speak 5 lagnguages for no reason
